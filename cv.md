@@ -8,7 +8,7 @@
 *Phone:* +61426815325       
 *E-mail:* iracherepanova@gmail.com        
 *Telegram:* Iryna Charapanava     
-*Discord:*    
+*Discord:*  Iryna Charapanava (@Irina202)
 ************
 ### Profeccional summary:
 I am eager to apply my academic knowledge towards launching a successful career as a Web Developer.
